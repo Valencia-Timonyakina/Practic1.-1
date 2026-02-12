@@ -1,2 +1,4 @@
 # Practic1.1
-edit
+Valeria Timonyakina 
+09 ISP 2022
+ISPO
